@@ -15,3 +15,6 @@ Diseño y estilizado: Tengo experiencia en el diseño de interfaces utilizando T
 Estoy constantemente aprendiendo y adaptándome a las nuevas tecnologías y tendencias en el desarrollo web para mejorar mis habilidades y ofrecer soluciones de calidad. Mi objetivo es contribuir a proyectos emocionantes y desafiantes mientras sigo creciendo profesionalmente en el campo del desarrollo web.
 
 Si deseas obtener más información sobre mis habilidades y experiencia, no dudes en consultar mi perfil completo en [LinkedIn](https://www.linkedin.com/in/paolo-samir-tello-uypan-402ab8188)
+
+Email: p_samir@hotmail.com
+
