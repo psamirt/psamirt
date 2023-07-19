@@ -16,5 +16,7 @@ Estoy constantemente aprendiendo y adaptándome a las nuevas tecnologías y tend
 
 Si deseas obtener más información sobre mis habilidades y experiencia, no dudes en consultar mi perfil completo en [LinkedIn](https://www.linkedin.com/in/paolo-samir-tello-uypan-402ab8188)
 
-Email: p_samir@hotmail.com
+Correo: p_samir@hotmail.com
+
+Cel: +51 982254431
 
